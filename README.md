@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rade-Zivanovic
-- 👀 I’m interested in Web development, Web design, and Translation
+- 👀 I’m interested in Web development, Copywriting, Translation, and Web design.
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me info@radez.me
